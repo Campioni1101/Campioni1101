@@ -20,5 +20,5 @@ Atualmente sou **líder de produção** em uma Refinaria de óleo e gordura, mas
 
 Vamos conectar?
 
-[LinkedIn](#) | [vi_campioni@hotmail.com(#)
+[(https://www.linkedin.com/in/vitor-campioni-b025491b3/)](#) | [vi_campioni@hotmail.com(#)
 
