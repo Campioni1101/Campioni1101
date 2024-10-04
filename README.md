@@ -1,16 +1,24 @@
-## Hi there 👋
+# Olá, eu sou o Vitor Campioni! 👋
 
-<!--
-**Campioni1101/Campioni1101** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Atualmente sou **líder de produção** em uma Refinaria de óleo e gordura, mas estou em uma jornada para mudar de área para o mundo da **Tecnologia da Informação** (TI) — e estou determinado a **conseguir**! 💻🚀
 
-Here are some ideas to get you started:
+## Um pouco mais sobre mim:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- 💼 Experiência em liderança e gerenciamento de equipes na produção industrial.
+- 🛠️ Habilidades em análise de processos e melhoria contínua.
+- 🎯 Objetivo: Mudar para a área de TI, com foco em desenvolvimento de software e tecnologia.
+  
+## O que estou buscando:
+
+- 📚 Aprender novas tecnologias, ferramentas e linguagens de programação.
+- 💡 Oportunidades para aplicar o que estou aprendendo em projetos reais.
+- 🙌 Conectar-me com pessoas da área de TI que possam ajudar nesse processo de transição.
+
+**Help me with this!** 😊
+
+---
+
+Vamos conectar?
+
+[LinkedIn](#) | [vi_campioni@hotmail.com(#)
+
